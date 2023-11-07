@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tarekVv
+- 👋 Hi, I’m tarek mohamed 
 - 👀 I’m interested in ...programing & electronics
 - 🌱 I’m currently learning ...ECE
 - 💞️ I’m looking to collaborate on .. no one that time..
